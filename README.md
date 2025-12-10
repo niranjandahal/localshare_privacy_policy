@@ -1,0 +1,1 @@
+# localshare_privacy_policy
